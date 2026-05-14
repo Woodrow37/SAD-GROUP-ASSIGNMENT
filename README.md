@@ -1,4 +1,4 @@
-# GIG-KOL-Super-App-SAD-GROUP-SAD Group Assignment Task Distribution
+SAD Group Assignment Task Distribution
 Member 1
 Main Responsibilities
 Lead survey and interview activities
